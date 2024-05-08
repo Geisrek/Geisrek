@@ -1,5 +1,5 @@
 # 💫 About Me:
-🌱I'm student currently <br>🐉Good knowledge in programing <br> ✨Programing is may life<br>🕴️ Teach and learn programing<br><br>
+🌱I'm a student currently <br>🐉Good knowledge in programming <br> ✨Programming is may life<br>🕴️ Teach and learn programming<br><br>
 
 
 ## 🌐 Socials:
